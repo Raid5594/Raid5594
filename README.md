@@ -1,6 +1,6 @@
 ## Raid Ateir
 
-Protocol engineer — smart contracts and blockchain infrastructure.
+Smart Contract Engineer | DeFi & Blockchain Infrastructure.
 
 📫 ateirraid@gmail.com · 🔗 [deltaflows.xyz](https://deltaflows.xyz)
 
